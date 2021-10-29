@@ -1,5 +1,8 @@
 # hello-word
-just landing!
-I'm Karl.
-Came to GitHub to get sharp and involved into coding and developing skills.
-Here I will be making useful app, web stuff and who knows more? secret: me
+just landing..🖱️
+
+I'm Karl🍘!
+
+Roaming to get sharp and go deeper into coding and developing skills 🉑
+
+Here I will (not soon enough) be making useful apps, web stuff and some other cosas🌵
